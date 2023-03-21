@@ -30,6 +30,12 @@ Sammlung aller Links ähnlich zu einmahlzahlung200.de
 
 - [einmalzahlung250.de](https://einmalzahlung250.de/)
 - [einmalzahlung400.de](https://einmalzahlung400.de/)
+- [einmalzahlung500.de](https://einmalzahlung500.de/) Ein Url Shortener? Bitte mit Vorsicht benutzen
+- [einmalzahlung69.de](https://einmalzahlung69.de/)
+- [einmalzahlung600.de](https://einmalzahlung600.de/)
+- [einmalzahlung420.de](https://einmalzahlung420.de/)
+- [einmalzahlung800.de](https://einmalzahlung600.de/)
+- [einmalzahlung1000.de](https://einmalzahlung1000.de/)
 
 ## Ernste Warnungen
 
