@@ -37,6 +37,8 @@ Sammlung aller Links ähnlich zu einmahlzahlung200.de
 - [einmalzahlung800.de](https://einmalzahlung600.de/)
 - [einmalzahlung1000.de](https://einmalzahlung1000.de/)
 - [keinmalzahlung200.de](https://www.keinmalzahlung200.de/)
+- [einmalzalung200.de](https://einmalzalung200.de/)
+
 
 ## Ernste Warnungen
 
