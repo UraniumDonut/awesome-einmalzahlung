@@ -11,7 +11,8 @@ Lustige Links zum An-Freunde-Faxen
 
 <!-- description -->
 
-Sammlung aller Links die ähnlich zu einmahlzahlung200.de
+Sammlung aller Links ähnlich zu einmahlzahlung200.de  
+Äh, natürlich einmalzahlung200.de
 
 </div>
 
